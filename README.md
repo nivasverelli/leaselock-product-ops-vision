@@ -53,3 +53,13 @@ up with nothing and learn on the job.
 
 Nivas Verelli — MS Business Analytics, UT Dallas  
 https://linkedin.com/in/nivasverelli
+
+<img width="3810" height="1796" alt="image" src="https://github.com/user-attachments/assets/28b60281-eb93-44f7-aeef-3137df044a8f" />
+
+### From Manual to Intelligent
+
+<img width="3765" height="1760" alt="image" src="https://github.com/user-attachments/assets/2626abdf-7ba3-4d03-b281-b07b6e53f733" />
+
+
+
+
